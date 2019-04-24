@@ -3,7 +3,7 @@ Amiga Game Covers and Disks
 
 Here I present a selection of covers and disk to print.
 
-Please see my blog: https://nowandthentech.wordpress.com/ for details.
+Please see my blog: https://www.monkat.com/single-post/2016/01/24/Game-inserts-and-cases for details.
 
 Covers:
 
